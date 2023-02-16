@@ -1,1 +1,1 @@
-# **AVALON THEME**
+# AVALON THEME
